@@ -40,5 +40,5 @@ I specialize in Tier 1 technical support, troubleshooting hardware and software 
 ---
 
 ## Contact
-* **LinkedIn:** [Your LinkedIn Profile URL]
-* **Email:** [Your Email Address]
+* **LinkedIn:** [www.linkedin.com/in/michael-gambucci-bba96b325]
+* **Email:** [michael.gambucci@students.post.edu]
